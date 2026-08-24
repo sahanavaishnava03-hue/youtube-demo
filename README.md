@@ -9,4 +9,4 @@ hello everyone today i am very desapointd
 ed by my mother due to some reasons its ok she is my mother right;
 today i am getting disapointed by my mother and i tale a one gutt decision to myself and i prove ir also
 Today i have a very bad day so i need to take a good decision in my life but its it hurts to a some persons heart it so hard to explain. 
-today i am so happy with my friend as a shashank with lot of fun and happiness
+today i am so happy with my friend as a shashank with lot of fun and happiness and all the cherrish movement also
